@@ -32,6 +32,6 @@
 
 ## 🐙 Mi GitHub
 [github.com/DanielAlfonsoCely](https://github.com/DanielAlfonsoCely)
-Otra cuenta:
+Cuenta secundaria:  
 [github.com/danielcely23](https://github.com/danielcely23)
 
